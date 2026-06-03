@@ -1,4 +1,4 @@
-# 
+# Ultime dex market making bot modules complémentaires pour Mac OS | VIP dex market making bot modules complémentaires pour PC Windows. Avec détection des attaques sandwich et intégration d'API — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
